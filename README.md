@@ -1,3 +1,3 @@
 
 # Javascript Review project by Josephus,Cordova
-SHESHABALE IT IS MY WORLD
+BUANG SI SIR ATAY MANI BWESIT KA SIR
